@@ -4,6 +4,6 @@ I'm currently trying like hell to complete my pre-course with Northcoders in tim
 
 [My Soundcloud](https://soundcloud.com/nicotineapache) shows off some of my tunes.
 
-I used to work for Epic Games, lost that job in the recent redundancies. Ready for a new set of challenges.
+Former Motion Tracker for Epic Games. Ready for a new set of challenges.
 
 Oh, and I have a Jack Russell called Eddie. My pronouns are He/Him. One day I want to build a website which shows off all the stuff that I do, musically. Wanna collab on a lofi hiphop track?
